@@ -11,4 +11,4 @@
 
 Qualquer dúvida entre em contato
 <a href="joao.bzyl@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white&quot; target="_blank"/></a>
-![]([https://tenor.com/pt-BR/view/night-city-cyberpunk2077-night-city-skyline-chilling-at-scenic-view-watching-city-gif-26943044]
+![]
